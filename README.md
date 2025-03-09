@@ -11,7 +11,7 @@
 - ⚡ Fun fact: **I love memes & rainy days! 🌧️**
 
 ### 🌎 Connect with me:
-[![LinkedIn](https://img.shields.io/badge/LinkedIn-Profile-blue)](https://linkedin.com/in/USERNAME)
+[![LinkedIn](https://img.shields.io/badge/LinkedIn-Profile-blue)](https://linkedin.com/in/Chonlatorn B.)
 
 ### 🚀 Languages and Tools:
 <p align="left">
