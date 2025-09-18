@@ -16,7 +16,7 @@
 - 🌱 I’m currently learning **every programming language I can get my hands on!**
 - 💬 Ask me about **AI, cute frontends, or even how to make dashboards sparkle ✨**
 - 📫 Reach me at: [chonlatorn173@gmail.com](mailto:chonlatorn173@gmail.com)
-- ⚡ Fun fact: **Rainy days & memes = my perfect combo ☁️💻**
+- ⚡ Fun fact: **Rainy days & Gaming = my perfect combo ☁️💻**
 
 ---
 
